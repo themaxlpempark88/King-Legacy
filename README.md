@@ -2,7 +2,7 @@
 
 # ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱 Script](https://bit.ly/4g48Rej)***
 
-![maxresdefault](https://bit.ly/4g48Rej)
+![maxresdefault](https://bit.ly/4fHvJAz)
 
 
 
